@@ -8,8 +8,6 @@ I speak English, Russian, C++ (mostly shit), and Lua.
 
 I am a russian guy who doesn't have friends (2)
 
-### Projects
-
 ## Game taste
 
 I play different games, such as: hollow knight, oneshot, rain world, roblox, minecraft and much more
