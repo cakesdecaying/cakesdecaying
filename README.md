@@ -17,5 +17,5 @@ I play different games, such as: hollow knight, oneshot, rain world, roblox, min
 currently working on a project TDBS
 ## Contacts
 
-- discord - emergencyanswer
+- discord - desktop.ini
 - [roblox profile](https://www.roblox.com/users/1142244715/profile)
